@@ -7,3 +7,5 @@ I do want to say that the instructions were not as clear as i would've liked but
 
 
 Again i do have to say that i'm sorry for not making the paper and i fully embrace the grade that i'll receive.
+
+This work was made in collaboration with my classmates, specially Mauricio Gonzales, Matias Valladares and Kirsi Vidal.
